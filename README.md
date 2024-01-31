@@ -24,3 +24,11 @@ mince
 ^R
 
 Doriane Enguerin, Lucas Auffret, Adele Gery
+
+Ode a ma dodo, signé Adèle
+doriane,
+mon ane,
+tu es belle,
+comme une hirondelle,
+et gentille,
+comme une quille
