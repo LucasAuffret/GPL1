@@ -1,4 +1,5 @@
 <<<<<<< HEAD
+<<<<<<< HEAD
 READ:
 If u read this
 this 
@@ -6,12 +7,20 @@ is
 too late
 
 =======
-i
-t
-t
-t
-a
 a
 a
 :LIS
->>>>>>> lucas
+
+Blabla 
+vutkcnbhv
+bhvhv j
+uycutgc
+bjivfuyu
+
+lkbtd-d
+mince
+
+alors flute crotte de bouc^/
+^R
+
+>>>>>>> Doriane
