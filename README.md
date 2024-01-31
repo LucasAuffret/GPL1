@@ -20,7 +20,7 @@ bjivfuyu
 lkbtd-d
 mince
 
-alors flute crotte de bouc^/
+
 ^R
 
->>>>>>> Doriane
+Doriane Enguerin, Lucas Auffret, Adele Gery
